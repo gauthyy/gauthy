@@ -1,3 +1,2 @@
-# sygzx
-just my site lmao
-(skidded from dum.lol) 😲
+# for old gauthy.lol
+(skidded from dum.lol 😡😡)
